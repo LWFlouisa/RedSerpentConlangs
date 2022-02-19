@@ -4,7 +4,7 @@ author: SRWeaver
 tags: constructedlanguage osazusacos lightnovels postmanga
 layout: post
 ---
-Lately as I’ve moved away from manga, I’ve been slowly developing the opinion that I don’t necessarily need the US comic or Japanese manga industry to produce what I want to. Japan already had the reputation of not really reading Manga or Light novels produced in English, as after 2020 while I agree with the sentiment or not the hashtag #CruelJapan has started taking off within a small niche. Here are some proposals for why one should pursue Constructed Language comics, rather than trying to break into manga:
+Lately as I’ve moved away from manga, I’ve been slowly developing the opinion that I don’t necessarily need the US comic or Japanese manga industry to produce what I want to. Japan already had the reputation of not really reading Manga or Light novels produced in English, as after 2020 while I don't really agree with the sentiment, the hashtag #CruelJapan has started taking off within a small niche. Here are some proposals for why one should pursue Constructed Language comics, rather than trying to break into manga:
 
 With a constructed language, you get to the control the exact syntax and vocabulary. In a normal social setting this might not seem extremely important, however note that as the US slowly slides away from Democracy, toward some form of authoritarianism, it’s going to become more prudent than ever to not be bound by the limitations of the English language, that is being increasingly bastardized.
 
